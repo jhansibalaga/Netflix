@@ -13,6 +13,7 @@
                                                Only On Netflix
 
 ![netflix](https://github.com/jhansibalaga/Netflix/assets/152490361/e576d96a-79ff-4efc-a9bd-14dfd9d0f6e1)
+![netflix](https://github.com/jhansibalaga/Netflix/assets/152490361/14ac21a0-42d1-44a6-a9c0-b891e68b904a)
 
 
 
